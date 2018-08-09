@@ -46,7 +46,7 @@
 
 <p>Khiến không khí trong gia đình bạn có mùi hôi thối, ảnh hưởng tới những giờ khắc gia đình sum họp.</p>
 
-<p>*** Xem thêm&nbsp;<strong>Bật mí nguyên nhân khiến hầm cầu bị đầy và hướng giải quyết hiệu quả</strong>: <strong><a href="https://www.revistas.usp.br/extraprensa/user/viewPublicProfile/76759" title="https://www.revistas.usp.br/extraprensa/user/viewPublicProfile/76759">https://www.revistas.usp.br/extraprensa/user/viewPublicProfile/76759</a></strong></p>
+<p>*** Xem thêm&nbsp;<strong>Bật mí nguyên nhân khiến hầm cầu bị đầy và hướng giải quyết hiệu quả</strong>: <strong><a href="https://www.securitynow.com/profile.asp?piddl_userid=532015" title="https://www.securitynow.com/profile.asp?piddl_userid=532015">https://www.securitynow.com/profile.asp?piddl_userid=532015</a></strong></p>
 
 <p style="text-align: center;"><img alt="" src="https://i.imgur.com/jCVO4sS.jpg?1" style="width: 550px; height: 330px;" /></p>
 
