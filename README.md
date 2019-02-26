@@ -4,19 +4,19 @@
 
 <p>Bài viết này sẽ sách bạn bí quyết xử lý tình trạng tắc cống nhà vệ sinh!</p>
 
-<p>*** Kinh nghiệm nhận biết công ty Hút Bể Phốt uy tín tại TPHCM: <strong><a href="https://plus.google.com/103879042808603780178/posts/RrmNq67o91c" title="https://plus.google.com/103879042808603780178/posts/RrmNq67o91c">https://plus.google.com/103879042808603780178/posts/RrmNq67o91c</a></strong></p>
+<p>*** Bật mí nguyên nhân khiến hầm cầu bị đầy và hướng giải quyết hiệu quả: <strong><a rel="nofollow" href="https://speakerdeck.com/ruthamcautphcm" rel="nofollow" title="https://speakerdeck.com/ruthamcautphcm">https://speakerdeck.com/ruthamcautphcm</a></strong></p>
 
-<h3><strong>2 nguyên nhân chính gây tắc cống nhà vệ sinh&nbsp;</strong></h3>
+<h3><strong>2 nguyên nhân chính gây tắc cống nhà vệ sinh </strong></h3>
 
 <p><strong>1. Nguyên nhân tới từ ý thức con người</strong></p>
 
-<p>Do thói quen của chúng ta hay vứt những rác thải như băng vệ sinh, tã con trẻ, bã chè, bã cà phê, tàn thuốc lá, dầu mỡ dư thừa, thực phẩm dư thừa, tóc rụng, vỏ trứng&hellip;</p>
+<p>Do thói quen của chúng ta hay vứt những rác thải như băng vệ sinh, tã con trẻ, bã chè, bã cà phê, tàn thuốc lá, dầu mỡ dư thừa, thực phẩm dư thừa, tóc rụng, vỏ trứng…</p>
 
 <p>Nguyên nhân tới từ thói quen sử dụng giấy vệ sinh vứt bừa bãi xuống hệ thống thoát nước.</p>
 
 <p>Thói quen vứt khăn giấy ướt xuống nhà vệ sinh sau khi lau mặt.</p>
 
-<p>Do bất cẩn khiến bạn làm rơi rớt đồ dùng hàng ngày như điện thoại, đồ kim loại, đồ chơi của trẻ xuống bồn cầu&hellip;</p>
+<p>Do bất cẩn khiến bạn làm rơi rớt đồ dùng hàng ngày như điện thoại, đồ kim loại, đồ chơi của trẻ xuống bồn cầu…</p>
 
 <p style="text-align: center;"><img alt="" src="https://i.imgur.com/eIptwk7.jpg" style="width: 800px; height: 500px;" /></p>
 
@@ -30,7 +30,7 @@
 
 <p>Do chất thải đã đầy trong hầm chứa gây tắc nghẽn, do thói quen không hút hầm cầu định kỳ của rất nhiều gia đình hiện nay.</p>
 
-<p>*** Tham khảo <strong><a href="https://gitlab.com/snippets/1719305" title="Bi quyet chon duoc Cong ty rut ham cau uy tin tai dia phuong ban sinh song">Bi quyet chon duoc Cong ty rut ham cau uy tin tai dia phuong ban sinh song</a></strong></p>
+<p>*** Tham khảo chọn công ty <strong><a rel="nofollow" href="https://www.flickr.com/photos/ruthamcauphuloc/46442322661" rel="nofollow" title="Rút hầm cầu giá rẻ HCM">Rút hầm cầu giá rẻ HCM</a></strong> uy tín</p>
 
 <p style="text-align: center;"><img alt="" src="https://i.imgur.com/J4Lap3v.jpg?1" style="width: 600px; height: 375px;" /></p>
 
@@ -46,15 +46,13 @@
 
 <p>Khiến không khí trong gia đình bạn có mùi hôi thối, ảnh hưởng tới những giờ khắc gia đình sum họp.</p>
 
-<p>*** Xem thêm&nbsp;<strong>Bật mí nguyên nhân khiến hầm cầu bị đầy và hướng giải quyết hiệu quả</strong>: <strong><a href="http://kfai.org/user/8705" title="http://kfai.org/user/8705">http://kfai.org/user/8705</a></strong></p>
-
 <p style="text-align: center;"><img alt="" src="https://i.imgur.com/jCVO4sS.jpg?1" style="width: 550px; height: 330px;" /></p>
 
 <h3><strong>2 Hướng xử lý tình trạng tắc nghẽn cống công trình phụ</strong></h3>
 
 <p><strong>1. Tắc nghẽn nhẹ</strong></p>
 
-<p>Nếu tình trạng tắc nghẽn ở mức nhẹ (nguyên nhân xuất phát do chúng ta làm rơi đồ vật xuống bồn cầu, thức ăn thừa, dầu mỡ thừa, búi tóc rụng&hellip;) thì bạn hoàn toàn có thể xử lý tình trạng tắc nghẽn này bằng móc treo quần áo, sử dụng hóa chất thông tắc, dùng nước sôi, dùng lươn và cá lóc&hellip;</p>
+<p>Nếu tình trạng tắc nghẽn ở mức nhẹ (nguyên nhân xuất phát do chúng ta làm rơi đồ vật xuống bồn cầu, thức ăn thừa, dầu mỡ thừa, búi tóc rụng…) thì bạn hoàn toàn có thể xử lý tình trạng tắc nghẽn này bằng móc treo quần áo, sử dụng hóa chất thông tắc, dùng nước sôi, dùng lươn và cá lóc…</p>
 
 <p>Nhưng bạn cần chú ý, TÌNH TRẠNG TẮC NGHẼN NẾU CỨ TÁI DIỄN THƯỜNG XUYÊN thì lúc này BẮT BUỘC bạn phải nhờ sự trợ giúp của những đơn vị xử lý thông cống nghẹt, hút bể phốt. Những đơn vị thi công này họ có đủ cơ sở vật chất để giúp bạn khắc phục triệt để tình trạng tắc nghẽn này.</p>
 
@@ -66,7 +64,7 @@
 
 <p style="text-align: center;"><img alt="" src="https://i.imgur.com/5KVW2LR.jpg" style="width: 800px; height: 420px;" /></p>
 
-<p>*** <strong>Mách nhỏ cho bạn</strong>: Trong quá trình sử dụng công trình phụ, nếu xảy ra tình trạng nghẹt, tắc nghẽn hay nước và chất thải thoát quá chậm thì Khách hàng hãy liên lạc ngay với <strong>Công Ty Hút Hầm Cầu Phú Lộc</strong>. Lúc này, đội ngũ chuyên viên giàu kinh nghiệm trong lĩnh vực Rút hầm cầu, Thông cống nghẹt&nbsp;của Phú Lộc sẽ giải đáp mọi thắc mắc của Quý Khách hàng trong quá trình xử lý sơ qua tình trạng cống nhà vệ sinh&nbsp;tại nhà Quý Khách. Nếu sau khi tự mình Khách hàng thực hiện xử lý mà tình trạng nghẹt bồn cầu&nbsp;vẫn chưa được giải quyết triệt để,<strong> Phú Lộc</strong> sẽ cho chuyên viên giàu kinh nghiệm xuống tận nhà Khách hàng để hỗ trợ Khách hàng xử lý vấn đề nghẹt hầm cầu với những thiết bị hiện đại nhất, đảm bảo nhanh nhất, có cam kết bảo hành khi thi công.</p>
+<p>*** <strong>Mách nhỏ cho bạn</strong>: Trong quá trình sử dụng công trình phụ, nếu xảy ra tình trạng nghẹt, tắc nghẽn hay nước và chất thải thoát quá chậm thì Khách hàng hãy liên lạc ngay với <strong>Công Ty Hút Hầm Cầu Phú Lộc</strong>. Lúc này, đội ngũ chuyên viên giàu kinh nghiệm trong lĩnh vực Rút hầm cầu, Thông cống nghẹt của công ty <strong><a rel="nofollow" href="https://gitlab.com/snippets/1719305" rel="nofollow" title="Rút hầm cầu TPHCM">Rút hầm cầu TPHCM</a></strong> sẽ giải đáp mọi thắc mắc của Quý Khách hàng trong quá trình xử lý sơ qua tình trạng cống nhà vệ sinh tại nhà Quý Khách. Nếu sau khi tự mình Khách hàng thực hiện xử lý mà tình trạng nghẹt bồn cầu vẫn chưa được giải quyết triệt để,<strong> Phú Lộc</strong> sẽ cho chuyên viên giàu kinh nghiệm xuống tận nhà Khách hàng để hỗ trợ Khách hàng xử lý vấn đề nghẹt hầm cầu với những thiết bị hiện đại nhất, đảm bảo nhanh nhất, có cam kết bảo hành khi thi công.</p>
 
 <p><strong>Thông tin Công ty Hút Hầm Cầu Phú Lộc</strong></p>
 
